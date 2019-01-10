@@ -52,7 +52,9 @@ I offer salutations to Rahu, the one with a half-body, the one who has exception
 I pray to Ketu, whose appearance resembles that of flower Palaasha, who is the head of all stars and planets. Lord Ketu is violet and fierce.     
 
 नम: सूर्याय सोमाय मङ्गलाय बुधाय च, गुरु शुक्र सनिभ्यस्च, रहव केत्हवे नम:  
-he Navagraha Stotram is intended to help any person suffering from the negative effects of the position of any of the nine planets in one’s birth chart. By regular recitation of the mantras, you can please the planet lords and get favorable results from them.   
+he Navagraha Stotram is intended to help any person suffering from the negative effects of the position of any of the nine planets in one’s birth chart. By regular recitation of the mantras, you can please the planet lords and get favorable results from them.
+
+## .   
 
 1. ॐ उत्तिष्ठ पुरुष हरित-पिङ्गल-लोहिताक्ष धन-धान्य-समृद्धिं देहि देहि दापय दापय स्वाहा।   
 2. ॐ हरीम योगिनी योगिनी योगेश्वरी योगेश्वरी योग भयंकरी सकला स्थावरा जन्गामस्य मुखाहृधायम ममावशं आकर्शाया आकर्शाया स्वाहा।   
