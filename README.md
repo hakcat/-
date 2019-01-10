@@ -3,6 +3,38 @@ Collection of Sanskrit shlokas with meanings.
 
 रूपं देही जयम दही, यसो देही द्विसो जहि - Grant us your Form, grant us victory, grant us welfare, destroy all hostility
 
-1. ॐ उत्तिष्ठ पुरुष हरित-पिङ्गल-लोहिताक्ष धन-धान्य-समृद्धिं देहि देहि दापय दापय स्वाहा।
+1. ॐ उत्तिष्ठ पुरुष हरित-पिङ्गल-लोहिताक्ष धन-धान्य-समृद्धिं देहि देहि दापय दापय स्वाहा।   
+2. ॐ हरीम योगिनी योगिनी योगेश्वरी योगेश्वरी योग भयंकरी सकला स्थावरा जन्गामस्य मुखाहृधायम ममावशं आकर्शाया आकर्शाया स्वाहा।   
+3. नवग्रह स्तोत्रं :   
+जपाकुसुम संकाशं काश्यपेयं महदद्युतिम् I   
+तमोरिंसर्वपापघ्नं प्रणतोSस्मि दिवाकरम् II १ II     
+I bow down to the sun who is red like the flower of Hibiscus, who is the son of Kasyapa, who is the enemy of darkness, who destroys all sins and who has a splendid radiance.      
+दधिशंखतुषाराभं क्षीरोदार्णव संभवम् I  
+नमामि शशिनं सोमं शंभोर्मुकुट भूषणम् II २ II    
+I offer my salutation to Lord Soma who is white in color like snow, yogurt and icebergs, who adorns the head of Lord Shiva and who rose from the Ksheasagar.  
+धरणीगर्भ संभूतं विद्युत्कांति समप्रभम् I   
+कुमारं शक्तिहस्तं तं मंगलं प्रणाम्यहम् II ३ II   
+I pray to Lord Mangal who shines like lightning, who is born of the Earth, who holds a weapon named Shakti in his hand and who is called Swami Kumara.  
+प्रियंगुकलिकाश्यामं रुपेणाप्रतिमं बुधम् I   
+सौम्यं सौम्यगुणोपेतं तं बुधं प्रणमाम्यहम् II ४ II   
+I offer salutations to Budha who has an incomparable beauty, who is very wise, the one who is the son of Soma and the one who possesses charming and noble characteristics.  
+देवानांच ऋषीनांच गुरुं कांचन सन्निभम् I   
+बुद्धिभूतं त्रिलोकेशं तं नमामि बृहस्पतिम् II ५ II  
+I bow down to Lord Guru, the preceptor of all gods, rishis and saints, the one who is the form of ultimate wisdom, the one who is the God of all the three worlds and the one who is like gold.  
+हिमकुंद मृणालाभं दैत्यानां परमं गुरुम् I   
+सर्वशास्त्र प्रवक्तारं भार्गवं प्रणमाम्यहम् II ६ II   
+I bow down to the son of Bhagu, the Shukra who is the spiritual master of asuras, the greatest teacher of all the learning, the one who shines like snow and jasmine.  
+नीलांजन समाभासं रविपुत्रं यमाग्रजम् I   
+छायामार्तंड संभूतं तं नमामि शनैश्चरम् II ७ II   
+I offer prayers to Lord Shani whose complexion is dark blue, the one who is the elder brother of the God of Death (Yama), the one who is born of Chaya and the one who is the son of the Sun.  
+अर्धकायं महावीर्यं चंद्रादित्य विमर्दनम् I   
+सिंहिकागर्भसंभूतं तं राहुं प्रणमाम्यहम् II ८ II   
+I offer salutations to Rahu, the one with a half-body, the one who has exceptional strength, the one who is born of Simhika and the one who is the eclipse of the sun and the moon.  
+पलाशपुष्पसंकाशं तारकाग्रह मस्तकम् I   
+रौद्रंरौद्रात्मकं घोरं तं केतुं प्रणमाम्यहम् II ९ II   
+I pray to Ketu, whose appearance resembles that of flower Palaasha, who is the head of all stars and planets. Lord Ketu is violet and fierce.  
 
-2. ॐ हरीम योगिनी योगिनी योगेश्वरी योगेश्वरी योग भयंकरी सकला स्थावरा जन्गामस्य मुखाहृधायम ममावशं आकर्शाया आकर्शाया स्वः
+नम: सूर्याय सोमाय मङ्गलाय बुधाय च, गुरु शुक्र सनिभ्यस्च, रहव केत्हवे नम:  
+he Navagraha Stotram is intended to help any person suffering from the negative effects of the position of any of the nine planets in one’s birth chart. By regular recitation of the mantras, you can please the planet lords and get favorable results from them.
+  
+
